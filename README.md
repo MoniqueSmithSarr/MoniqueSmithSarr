@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MoniqueSmithSarr
-- 👀 I’m interested in Public Relations. 
+- 👀 I’m interested in StakeholderRelations. 
 - 🌱 I’m currently learning AI. 
 - 💞️ I’m looking to collaborate on communicaitons campaigns.
 - 📫 How to reach me info@huntersmithconsulting.com 
